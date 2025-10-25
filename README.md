@@ -1,4 +1,4 @@
-Hi, I'm Sercan
+Hi, I'm [Sercan](https://x.com/Nacr3z)
 
 I am currently a student and I am interested in these things.
 
